@@ -1,0 +1,2 @@
+# jizzaxliklar
+jizzaxliklar.uz
